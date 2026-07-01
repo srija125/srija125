@@ -1,4 +1,4 @@
-🚀 Hey, I'm Srija Tanti
+🚀 Hey, I'm Sri 
 ------------------------------------------------------------------------------------------------------------------------------------------------------------------
 🎓 I am currently studing B.Tech in Computer Science & Engineering (AI & ML) in University.
 
